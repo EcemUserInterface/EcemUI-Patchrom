@@ -1,2 +1,4 @@
-# EcemUI-Patchrom
-Ecem User Interface Patchrom Resources
+# Sedenciğim saçın nasıl moruk
+Ha saçın nasıl
+Saçını köklerinden öperim
+Saçlarını ıssırdığımın çocuğu
